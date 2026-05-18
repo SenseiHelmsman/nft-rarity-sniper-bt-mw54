@@ -1,4 +1,4 @@
-# 
+# automatic bot de trading NFT ejecutor es el mejor bot de trading NFT ejecutor con escaneo de colecciones y calculadora de regalías. Seguro, confiable y optimizado para estrategias
 
 
 
